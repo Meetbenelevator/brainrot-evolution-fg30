@@ -1,4 +1,4 @@
-#  
+#  brainrot evolution new Script is the best brainrot evolution Script, featuring auto-collect and auto-heal. Safe and powerful for all your needs.
 
 
 
